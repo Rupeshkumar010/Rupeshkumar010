@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi i am Rupesh choudhary welcome to my profile
 
 <!--
 **Rupeshkumar010/Rupeshkumar010** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
